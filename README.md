@@ -1,4 +1,4 @@
-# Hi🤚 I'm hukuin.
+# Hi👐 I'm hukuin.
 
 ## I usualy use
 
